@@ -7,7 +7,7 @@
   
 - 💞️ I’m looking to collaborate on any projects and progressing my skills and knowledge and meet like-minded people.
   
-- 📫 How to reach me you can contact me at jos.watson7@gmail.com
+- 📫 How to reach me you can contact me at 
 
 <!---
 jossw27/jossw27 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
